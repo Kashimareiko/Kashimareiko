@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kashimareiko
+- 👀 I’m interested in JavaScript, Python, and PowerShell.
+- 🌱 I’m currently learning JavaScript, Web and Software development.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me !TanaDev#6666 on discord.
