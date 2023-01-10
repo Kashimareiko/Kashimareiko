@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kashimareiko
-- 👀 I’m interested in JavaScript, Python, and PowerShell.
-- 🌱 I’m currently learning JavaScript, Web and Software development.
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me !TanaDev#6666 on discord.
+- 📫 How to reach me: tana6ixx@proton.me - 6ixtana#6666
