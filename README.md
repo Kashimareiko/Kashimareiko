@@ -2,4 +2,4 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me: tana6ixx@proton.me - 6ixtana#6666
+- 📫 How to reach me: tana6ixx@proton.me - kutthroattana (discord)
